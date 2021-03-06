@@ -34,5 +34,3 @@ A New Premium Technology For All Digital Solution Providers. Open For Developers
 We Publish In End 2021.
 
 http://anyplatformsuite.com
-https://www.linkedin.com/company/anyplatformsuite/
-info@flip-capacity.com
