@@ -29,8 +29,6 @@ Advance With Interactive Solution Collaboration.
 # Friends
 We Are In Open Communication With Various Big Global Players.
 
-European Parlament Deutsche Bundesregierung Deutsche Telekom Volkswagen AG IBM Redhat Facebook Wargaming Gartner MIT Technology Review Forbes The Leadership Board Strategy Insights Holtzbrinck Ventures Earlybirds Ventures UnternehmerTUM Ventures ARD ZDF RTL Prosieben Sat1 NTV LinkedIn Google Youtube Amazon Donald Trump
-
 # About
 A New Premium Technology For All Digital Solution Providers. Open For Developers.
 We Publish In End 2021.
