@@ -1,9 +1,6 @@
 # Any Platform Suite
 
-A New Digital Platform Can Flip Billions In High Pay.
-For Solution Providers
-
-Flip High Pay On Any Digital Integration And Cloud Service.
+Flip Heavy Capacity With A New Leading Digital Platform Alternative.
 
 # Portable
 Use Any New And Exist Solution.
