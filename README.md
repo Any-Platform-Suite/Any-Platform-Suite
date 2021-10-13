@@ -1,5 +1,5 @@
 # Any Platform Suite
-Suite Flip Platform Pay.
+Flip Platform Pay.
 
 # Easy Complexity.
 One Vertical Integration And Platform Technology.
